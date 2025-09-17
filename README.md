@@ -1,3 +1,3 @@
-building [Vernus](https://vernus.one) and [Moonka.space](https://moonka.space)
+building [Vernus](https://vernus.one)
 
-[@zcserei](https://twitter.com/zcserei) on Twitter
+[@zcserei](https://twitter.com/zcserei) on X (and pretty much everywhere)
